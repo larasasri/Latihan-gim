@@ -1,1 +1,1 @@
-# Latihan-gim
+# Latihan-gimp
